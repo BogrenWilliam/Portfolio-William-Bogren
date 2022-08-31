@@ -1,5 +1,5 @@
 
-# William Bogren::
+# William Bogren
 Im a ambitious and positive student which is ready for every challange that is in front of me. I have always been intrested in Information-technology. My determind is to learn new stuff and to create group cohestion.
 IT Security has always been close to my interest of data. 
 
